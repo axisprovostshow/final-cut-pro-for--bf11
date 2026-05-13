@@ -1,4 +1,4 @@
-# 
+# Enhance Final Cut Pro for macOS with Final Cut Pro for macOS professional Template: EQ & stream-overlays, the #1 template. Includes EQ and stream-overlays for a smoother and more
 
 
 
